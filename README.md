@@ -1,1 +1,1 @@
-hi i am hima a boed induvidual 
+hi i am hima a bored induvidual 
