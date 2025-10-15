@@ -1,1 +1,1 @@
-hi i am hima a bored induvidual 
+hi i am hima a third year student 
